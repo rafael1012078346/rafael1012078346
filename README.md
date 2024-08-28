@@ -1,16 +1,20 @@
-## Hi there 👋
+ boas vindasb visitantes desse perfil
+   
+  **Rafael**
+   
+  Estou estudando na [Alura](https://www.alura.com.br/?srsltid=AfmBOooBZRmWiS5Ow6XDM57ylOogfMUofpIPU2it4kmRjqK4Y_K02Z0-)
 
-<!--
-**rafael1012078346/rafael1012078346** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+   meu nome é Rafael Rocha de Oliveira tenho 15 anos faço um curso chamado CEDEP
+   
+   treino Judo uma vez por semana e academia 4 vezes na semana
+   
+   moro em Astorga estudo na escola Adolpho.
 
-Here are some ideas to get you started:
+   
+   Entre em contato comigo rafael.rocha.oliveira24@escola.pr.gov.br
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+  
+     ![](https://media1.tenor.com/m/c8QavWXN0yUAAAAC/tusareve-gumball.gif)
+     
+   
